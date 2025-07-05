@@ -2,6 +2,7 @@
 
 If you've already purchased PC Matic and are looking to install it on a new device or reinstall it, the process is straightforward. This guide will walk you through how to **install PC Matic already purchased** and get your system protected in just a few steps. Whether you're setting it up on a new PC or reinstalling after a system reset, follow this step-by-step approach to ensure a smooth experience.
 
+<center><a href="https://mylicensepage.click/install-pc-matic/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With PCMatic</a></center>
 
 ## PC Matic Download & Install Guide for Existing Customers: Activate with Product Key or Login
 
@@ -17,6 +18,7 @@ Before you begin the installation, make sure you have access to your **PC Matic 
 
 Keep this key handy as you'll need it during the installation process.
 
+<center><a href="https://mylicensepage.click/install-pc-matic/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With PCMatic</a></center>
 
 ### Step 2: Visit the PC Matic Official Website
 
